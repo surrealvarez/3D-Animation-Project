@@ -6,7 +6,7 @@ THE FINAL RESULT FOR OUR 3D ANIMATION PROJECT CAN BE FOUND IN THE LINK BELOW.
 CREATED BY JOSE ALVAREZ AND ADRIEL ARIAS.
 MUSIC OWNED BY THE RESPICTIVE OWNERS (CREATIVE COMMONS LICENSE).
 
-https://www.youtube.com/watch?v=A3VLeJAuRwo&t=1s
+https://youtu.be/2CDCniPL_Pg
 
 CUSTOMIZED MUSIC VERSION:
 This video shows a partnership with 2 music creators that contributed for the customized music included.
